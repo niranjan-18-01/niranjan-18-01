@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am AIML student<br>Currently study in Rajeev Institute Of Technology <br>
+Hey , I am Niranjan <br>I am AIML student<br>Currently study in Rajeev Institute Of Technology <br>
 
 
 ## 🌐 Socials:
